@@ -1,1 +1,1 @@
-This project showcases a logo redesign created to improve the overall visual identity, making it more modern, clean, and visually appealing. The design focuses on better typography, balance, and brand representation.
+
